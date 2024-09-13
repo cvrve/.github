@@ -1,3 +1,3 @@
 ### Meet Cvrve!
 
-We are your Event Management Tool empowering universities & colleges!
+Reducing inefficiencies through decentralized public-source paradigms.
